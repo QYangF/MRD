@@ -1,2 +1,2 @@
 # MRD
- Once the paper is completed, it will be uploaded promptly. Please stay tuned.
+ Once all the papers are completed, they will be uploaded in a timely manner. Please stay tuned.
