@@ -1,2 +1,2 @@
 # MRD
- A Multimodal Human-Robot Interaction Intelligent Engine
+ Once the paper is completed, it will be uploaded promptly. Please stay tuned.
